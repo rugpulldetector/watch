@@ -1,4 +1,1 @@
-https://filetransfer.io/data-package/IQYY8FgF#link
-
-## Other
-https://www.dropbox.com/scl/fo/eow687ljmnxqimu6dpopa/h?rlkey=odj18wa0cwkv0xezm4v6md544&st=hxfdfdnm&dl=0
+https://drive.google.com/drive/folders/1UX9llY65KS3Z_m6nRfEJ_BrHR22BrICn
